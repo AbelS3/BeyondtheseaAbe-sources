@@ -1,2 +1,49 @@
-# BeyondtheseaAbe-sources
-All the sources &amp; Credits
+Air bubbles moving under sheet of ice by Fvtvr3r - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Air_bubbles_moving_under_sheet_of_ice.webm
+An octopus is visiting the EMSO-Molène observatory (Ifremer 00384-49520) by Frauke Klingelhoefer / Louis Géli - CC-BY - https://commons.wikimedia.org/wiki/File:An_octopus_is_visiting_the_EMSO-Mol%C3%A8ne_observatory_(Ifremer_00384-49520).webm
+Autonomous landers, Observing the deepest places on Earth by Oceanlab, University of Aberdeen, edited by Thomas Linley - CC-BY - https://commons.wikimedia.org/wiki/File:Autonomous_landers,_Observing_the_deepest_places_on_Earth.WebM
+Bioturbation-in-a-Declining-Oxygen-Environment-in-situ-Observations-from-Wormcam-pone.0034539.s002 by Sturdivant S, Diaz R, Cutter G - CC-BY - https://commons.wikimedia.org/wiki/File:Bioturbation-in-a-Declining-Oxygen-Environment-in-situ-Observations-from-Wormcam-pone.0034539.s002.ogv
+Blue Grotto MVI 0209 by Deror avi - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Blue_Grotto_MVI_0209.webm
+Çakalburnu Lagünü, Sulak Alan by Gcinar1 - CC-BY-SA - https://commons.wikimedia.org/wiki/File:%C3%87akalburnu_Lag%C3%BCn%C3%BC,_Sulak_Alan.webm
+Caribbean Reef Squid Encounter by Atsme - CC-BY - https://commons.wikimedia.org/wiki/File:Caribbean_Reef_Squid_Encounter.webm
+Comb Jelly, Shedd Aquarium, Chicago.webmhd by Victorgrigas - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Comb_Jelly,_Shedd_Aquarium,_Chicago.webmhd.webm
+Differences-in-chemosensory-response-between-eyed-and-eyeless-Astyanax-mexicanus-of-the-Rio-2041-9139-4-25-S1 by Bibliowicz J, Alie A, Espinasa L, Yoshizawa M, Blin M, Hinaux H, Legendre L, Pere S, Retaux S - CC-BY - https://commons.wikimedia.org/wiki/File:Differences-in-chemosensory-response-between-eyed-and-eyeless-Astyanax-mexicanus-of-the-Rio-2041-9139-4-25-S1.ogv
+Discovery-of-New-Hydrothermal-Activity-and-Chemosynthetic-Fauna-on-the-Central-Indian-Ridge-at-pone.0032965.s001 by Nakamura K, Watanabe H, Miyazaki J, Takai K, Kawagucci S, Noguchi T, Nemoto S, Watsuji T, Matsuzaki T, Shibuya T, Okamura K, Mochizuki M, Orihashi Y, Ura T, Asada A, Marie D, Koonjul M, Singh M, Beedessee G, Bhikajee M, Tamaki K - CC-BY - https://commons.wikimedia.org/wiki/File:Discovery-of-New-Hydrothermal-Activity-and-Chemosynthetic-Fauna-on-the-Central-Indian-Ridge-at-pone.0032965.s001.ogv
+Drifters of the deep by Eugenia Loli - CC-BY - https://commons.wikimedia.org/wiki/File:Drifters_of_the_deep.webm
+Einfluss der Sonne auf Tiefseetiere by ZDF/Terra X/Gruppe 5 Filmproduktion/Tamar Baumgarten/Scope VFX/Maximilian Mohr - CC-BY - https://commons.wikimedia.org/wiki/File:Einfluss_der_Sonne_auf_Tiefseetiere.webm
+Ejection and retraction of defense apparatus acontia in sea anemone Exaiptasia pallida by Lam J, Cheng Y, Chen WU, Li H, Chen C, Peng S. 2017 - CC-BY - https://commons.wikimedia.org/wiki/File:Ejection_and_retraction_of_defense_apparatus_acontia_in_sea_anemone_Exaiptasia_pallida.webm
+Exceptionally-Preserved-Cambrian-Trilobite-Digestive-System-Revealed-in-3D-by-Synchrotron-Radiation-pone.0035625.s001 by Eriksson M, Terfelt F - CC-BY - https://commons.wikimedia.org/wiki/File:Exceptionally-Preserved-Cambrian-Trilobite-Digestive-System-Revealed-in-3D-by-Synchrotron-Radiation-pone.0035625.s001.ogv
+Feeding-Behavior-of-Subadult-Sixgill-Sharks-(Hexanchus-griseus)-at-a-Bait-Station-pone.0156730.s002 by McNeil B, Lowry D, Larson S, Griffing D - CC-BY - https://commons.wikimedia.org/wiki/File:Feeding-Behavior-of-Subadult-Sixgill-Sharks-(Hexanchus-griseus)-at-a-Bait-Station-pone.0156730.s002.ogv
+Feeding-Behavior-of-Subadult-Sixgill-Sharks-(Hexanchus-griseus)-at-a-Bait-Station-pone.0156730.s004 by McNeil B, Lowry D, Larson S, Griffing D - CC-BY - https://commons.wikimedia.org/wiki/File:Feeding-Behavior-of-Subadult-Sixgill-Sharks-(Hexanchus-griseus)-at-a-Bait-Station-pone.0156730.s004.ogv
+Fish-Food-in-the-Deep-Sea-Revisiting-the-Role-of-Large-Food-Falls-pone.0096016.s004 by Higgs N, Gates A, Jones D - CC-BY - https://commons.wikimedia.org/wiki/File:Fish-Food-in-the-Deep-Sea-Revisiting-the-Role-of-Large-Food-Falls-pone.0096016.s004.ogv
+Fond abyssal (Ifremer 00701-81314) by Ifremer - CC-BY - https://commons.wikimedia.org/wiki/File:Fond_abyssal_(Ifremer_00701-81314).webm
+Geheimnisvolle Tiefsee by ZDF/Terra X/Gruppe 5 Filmproduktion/Tamar Baumgarten/Scope VFX/Maximilian Mohr - CC-BY - https://commons.wikimedia.org/wiki/File:Geheimnisvolle_Tiefsee.webm
+Giant Japanese Spider Crab, Shedd Aquarium, Chicago.webmhd by Victorgrigas - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Giant_Japanese_Spider_Crab,_Shedd_Aquarium,_Chicago.webmhd.webm
+Grote spinkrab Oosterschelde-Stichting Natuurbeelden-171227 by Enting Films (producer) / Netherlands Institute for Sound and Vision (curator) - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Grote_spinkrab_Oosterschelde-Stichting_Natuurbeelden-171227.webm
+How to measure a giant squid and other thoughts about Wikipedia’s quality by Wikimedia Sverige - CC-BY - https://commons.wikimedia.org/wiki/File:How_to_measure_a_giant_squid_and_other_thoughts_about_Wikipedia%E2%80%99s_quality.webm
+Hydraulic-hydrogel-actuators-and-robots-optically-and-sonically-camouflaged-in-water-ncomms14230-s2 by Yuk H, Lin S, Ma C, Takaffoli M, Fang N, Zhao X - CC-BY - https://commons.wikimedia.org/wiki/File:Hydraulic-hydrogel-actuators-and-robots-optically-and-sonically-camouflaged-in-water-ncomms14230-s2.ogv
+Jaw-Laterality-and-Related-Handedness-in-the-Hunting-Behavior-of-a-Scale-Eating-Characin-Exodon-pone.0029349.s002 by Hata H, Yasugi M, Hori M - CC-BY - https://commons.wikimedia.org/wiki/File:Jaw-Laterality-and-Related-Handedness-in-the-Hunting-Behavior-of-a-Scale-Eating-Characin-Exodon-pone.0029349.s002.ogv
+Kayaking in the Bioluminescent Bay Vieques by Z22 - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Kayaking_in_the_Bioluminescent_Bay_Vieques.webm
+Lampocteis cruentiventer - MBA by Eric Polk - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Lampocteis_cruentiventer_-_MBA.webm
+Le Nautile effectuant des opérations de maintenance en environnement profond lors de la campagne MoMARSAT 2025 (Ifremer 00975-108646 - 57330) by null
+
+null - CC-BY - https://commons.wikimedia.org/wiki/File:Le_Nautile_effectuant_des_op%C3%A9rations_de_maintenance_en_environnement_profond_lors_de_la_campagne_MoMARSAT_2025_(Ifremer_00975-108646_-_57330).webm
+Lobed comb jelly swimming - MBA by Eric Polk - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Lobed_comb_jelly_swimming_-_MBA.webm
+Lophius piscatorius by Waielbi - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Lophius_piscatorius.ogv
+Modioles et crevettes filmées par le SMOOVE (Ifremer 00701-81317) by null - CC-BY - https://commons.wikimedia.org/wiki/File:Modioles_et_crevettes_film%C3%A9es_par_le_SMOOVE_(Ifremer_00701-81317).webm
+One Ocean Network for Deep Observation (Ifremer 00800-91236) by Pierre-Marie Sarradin - CC-BY - https://commons.wikimedia.org/wiki/File:One_Ocean_Network_for_Deep_Observation_(Ifremer_00800-91236).webm
+Ophiopsila polyacantha bioluminescence by Okanishi, Masanori (2020): Okanishi_2020_supl 1.mp4. figshare. Media. https://doi.org/10.6084/m9.figshare.12636929.v1 - CC-BY - https://commons.wikimedia.org/wiki/File:Ophiopsila_polyacantha_bioluminescence.ogv
+Ostrácodo nadando by Brandon Antonio Segura Torres & Priscilla Vieto Bonilla - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Ostr%C3%A1codo_nadando.webm
+Poisson et fonds abyssaux (Ifremer 00701-81286) by null - CC-BY - https://commons.wikimedia.org/wiki/File:Poisson_et_fonds_abyssaux_(Ifremer_00701-81286).webm
+Quantifying-Preferences-and-Responsiveness-of-Marine-Zooplankton-to-Changing-Environmental-pone.0140553.s003 by Ramanathan N, Simakov O, Merten C, Arendt D - CC-BY - https://commons.wikimedia.org/wiki/File:Quantifying-Preferences-and-Responsiveness-of-Marine-Zooplankton-to-Changing-Environmental-pone.0140553.s003.ogv
+Reconstruction of the Burgess Shale Biota (Middle Cambrian; British Columbia, Canada) by James St. John - CC-BY - https://commons.wikimedia.org/wiki/File:Reconstruction_of_the_Burgess_Shale_Biota_(Middle_Cambrian;_British_Columbia,_Canada).ogv
+Rhythms-and-Community-Dynamics-of-a-Hydrothermal-Tubeworm-Assemblage-at-Main-Endeavour-Field---A-pone.0096924.s004 by Cuvelier D, Legendre P, Laes A, Sarradin P, Sarrazin J - CC-BY - https://commons.wikimedia.org/wiki/File:Rhythms-and-Community-Dynamics-of-a-Hydrothermal-Tubeworm-Assemblage-at-Main-Endeavour-Field---A-pone.0096924.s004.ogv
+School of fish in Myanmar by William Ruzek - CC-BY - https://commons.wikimedia.org/wiki/File:School_of_fish_in_Myanmar.webm
+Tetrapod-like-pelvic-girdle-in-a-walking-cavefish-srep23711-s2 by Flammang B, Suvarnaraksha A, Markiewicz J, Soares D - CC-BY - https://commons.wikimedia.org/wiki/File:Tetrapod-like-pelvic-girdle-in-a-walking-cavefish-srep23711-s2.ogv
+Travelling sur une cheminée hydrothermale active (Ifremer 00701-81316) by null - CC-BY - https://commons.wikimedia.org/wiki/File:Travelling_sur_une_chemin%C3%A9e_hydrothermale_active_(Ifremer_00701-81316).webm
+Travelling vers la station SEAMON Est (Ifremer 00700-81186) by null - CC-BY - https://commons.wikimedia.org/wiki/File:Travelling_vers_la_station_SEAMON_Est_(Ifremer_00700-81186).webm
+Was passierte bei der Kambrischen Explosion? by ZDF/Terra X/O. Gurr/L. Bockius/E. Jesse/KawomGbR/K22/M. Heß - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Was_passierte_bei_der_Kambrischen_Explosion%3F.webm
+Wie entstehen Fossilien (CC by 4.0) redub EO by ZDF/Terra X/Spiegel TV/Jens Nicolai/Oliver Roetz/Hauke Ketelsen/Richard Sako
+
+Esperanto Übersetzung vom Team von https://scivolemo.wordpress.com , Übersetzung: Stefan und  Frank, Stimme: Siru - CC-BY - https://commons.wikimedia.org/wiki/File:Wie_entstehen_Fossilien_(CC_by_4.0)_redub_EO.webm
+Wie leben Korallen? by ZDF/Tivi/pur+/Ute Mattigkeit/gomie production/Stefan Bürke/Manos Dosis/Maximilian Heß - CC-BY - https://commons.wikimedia.org/wiki/File:Wie_leben_Korallen%3F.webm
+Wunderwerk Hai-Gebiss by ZDF/Terra X/R. Marel/S. Hillmann/C. Gerisch/A. Kindler/SpiegelTV/Maximilian Mohr - CC-BY - https://commons.wikimedia.org/wiki/File:Wunderwerk_Hai-Gebiss.webm
