@@ -47,3 +47,42 @@ Wie entstehen Fossilien (CC by 4.0) redub EO by ZDF/Terra X/Spiegel TV/Jens Nico
 Esperanto Übersetzung vom Team von https://scivolemo.wordpress.com , Übersetzung: Stefan und  Frank, Stimme: Siru - CC-BY - https://commons.wikimedia.org/wiki/File:Wie_entstehen_Fossilien_(CC_by_4.0)_redub_EO.webm
 Wie leben Korallen? by ZDF/Tivi/pur+/Ute Mattigkeit/gomie production/Stefan Bürke/Manos Dosis/Maximilian Heß - CC-BY - https://commons.wikimedia.org/wiki/File:Wie_leben_Korallen%3F.webm
 Wunderwerk Hai-Gebiss by ZDF/Terra X/R. Marel/S. Hillmann/C. Gerisch/A. Kindler/SpiegelTV/Maximilian Mohr - CC-BY - https://commons.wikimedia.org/wiki/File:Wunderwerk_Hai-Gebiss.webm
+
+053 Pod of Spinner dolphins swimming in the Indian ocean Video by Giles Laurent by Giles Laurent - CC-BY-SA - https://commons.wikimedia.org/wiki/File:053_Pod_of_Spinner_dolphins_swimming_in_the_Indian_ocean_Video_by_Giles_Laurent.webm
+2012-01-30 13-15-00-stop-motion-porte-garage-47.520227,6.823133.theora by Thomas Bresson - CC-BY - https://commons.wikimedia.org/wiki/File:2012-01-30_13-15-00-stop-motion-porte-garage-47.520227,6.823133.theora.ogv
+2023-05-12 Blue Shark Vid-WebM by rhk111 - CC-BY-SA - https://commons.wikimedia.org/wiki/File:2023-05-12_Blue_Shark_Vid-WebM.webm
+Aerial view of a humpback whale near Gordon's Bay, Sydney, Australia at 24 August 2020 by Adam Fish - CC-BY - https://commons.wikimedia.org/wiki/File:Aerial_view_of_a_humpback_whale_near_Gordon%27s_Bay,_Sydney,_Australia_at_24_August_2020.webm
+Aerial view of three humpback whales (Megaptera novaeangliae) near Cape Solander, New South Wales, Australia by Adam Fish - CC-BY - https://commons.wikimedia.org/wiki/File:Aerial_view_of_three_humpback_whales_(Megaptera_novaeangliae)_near_Cape_Solander,_New_South_Wales,_Australia.webm
+Antarctic Blue Whales by Blagoj Klincharski - CC-BY - https://commons.wikimedia.org/wiki/File:Antarctic_Blue_Whales.webm
+Baby Humpback Whale in Samaná, Dominican Republic by Caballero1967 - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Baby_Humpback_Whale_in_Saman%C3%A1,_Dominican_Republic.webm
+Blacktip reef shark (Carcharhinus melanopterus) in Hawaii by Barry Smith - CC-BY - https://commons.wikimedia.org/wiki/File:Blacktip_reef_shark_(Carcharhinus_melanopterus)_in_Hawaii.webm
+Blacktip Shark Redang Malaysia Aug 2009.theora by SystemBuilder - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Blacktip_Shark_Redang_Malaysia_Aug_2009.theora.ogv
+Cage diving with a great white shark by Vanessa Hollon - CC-BY - https://commons.wikimedia.org/wiki/File:Cage_diving_with_a_great_white_shark.webm
+Cage diving with great white sharks by Michael Pritchett - CC-BY - https://commons.wikimedia.org/wiki/File:Cage_diving_with_great_white_sharks.webm
+Computer-Simulations-Imply-Forelimb-Dominated-Underwater-Flight-in-Plesiosaurs-pcbi.1004605.s002 by Liu S, Smith A, Gu Y, Tan J, Liu C, Turk G - CC-BY - https://commons.wikimedia.org/wiki/File:Computer-Simulations-Imply-Forelimb-Dominated-Underwater-Flight-in-Plesiosaurs-pcbi.1004605.s002.ogv
+Feeding Caribbean reef sharks by Brett Kotheimer - CC-BY - https://commons.wikimedia.org/wiki/File:Feeding_Caribbean_reef_sharks.webm
+First underwater video of True's beaked whales underwater by Video Credit: Roland Edler. 
+
+Supplemental file 1 from article: Aguilar de Soto N, Martín V, Silva M, Edler R, Reyes C, Carrillo M, Schiavi A, Morales T, García-Ovide B, Sanchez-Mora A, Garcia-Tavero N, Steiner L, Scheer M, Gockel R, Walker D, Villa E, Szlama P, Eriksson IK, Tejedor M, Perez-Gil M, Quaresma J, Bachara W, Carroll E. (2017) True’s beaked whale (Mesoplodon mirus) in Macaronesia. PeerJ 5:e3059 - CC-BY - https://commons.wikimedia.org/wiki/File:First_underwater_video_of_True%27s_beaked_whales_underwater.ogv
+Fond abyssal (Ifremer 00701-81314) by Ifremer - CC-BY - https://commons.wikimedia.org/wiki/File:Fond_abyssal_(Ifremer_00701-81314).webm
+Geheimnisvolle Tiefsee by ZDF/Terra X/Gruppe 5 Filmproduktion/Tamar Baumgarten/Scope VFX/Maximilian Mohr - CC-BY - https://commons.wikimedia.org/wiki/File:Geheimnisvolle_Tiefsee.webm
+Great white shark and cage diving 2.wmv by Brocken Inaglory - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Great_white_shark_and_cage_diving_2.wmv.ogv
+Great white shark video 2.wmv by Brocken Inaglory - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Great_white_shark_video_2.wmv.ogv
+Great-hammerhead-sharks-swim-on-their-side-to-reduce-transport-costs-ncomms12289-s2 by Payne N, Iosilevskii G, Barnett A, Fischer C, Graham R, Gleiss A, Watanabe Y - CC-BY - https://commons.wikimedia.org/wiki/File:Great-hammerhead-sharks-swim-on-their-side-to-reduce-transport-costs-ncomms12289-s2.ogv
+Halichoerus grypus by Andreas Trepte - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Halichoerus_grypus.ogv
+Horn shark (Heterodontus francisci) buccal pumping by Mason - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Horn_shark_(Heterodontus_francisci)_buccal_pumping.webm
+Huge waves-VarnaPort-Bulgaria by Chiro J - CC-BY - https://commons.wikimedia.org/wiki/File:Huge_waves-VarnaPort-Bulgaria.webm
+Killer whale jumping in slow motion by Ravi Komatireddy - CC-BY - https://commons.wikimedia.org/wiki/File:Killer_whale_jumping_in_slow_motion.webm
+Killer whales swimming in the wild by Fair Projects - CC-BY - https://commons.wikimedia.org/wiki/File:Killer_whales_swimming_in_the_wild.webm
+Kraken video by Christophe95 - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Kraken_video.webm
+Nadando con un Tiburón Ballena- Swimming with a Whale Shark by Srosama - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Nadando_con_un_Tibur%C3%B3n_Ballena-_Swimming_with_a_Whale_Shark.ogv
+Panning the Dracorex skeletal reconstruction in the Dinosphere exhibit at The Children's Museum of Indianapolis. by The Children's Museum of Indianapolis - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Dracorex_pan_body.ogv
+Scales-and-Tooth-Whorls-of-Ancient-Fishes-Challenge-Distinction-between-External-and-Oral-Teeth-pone.0071890.s002 by Qu Q, Sanchez S, Blom H, Tafforeau P, Ahlberg P - CC-BY - https://commons.wikimedia.org/wiki/File:Scales-and-Tooth-Whorls-of-Ancient-Fishes-Challenge-Distinction-between-External-and-Oral-Teeth-pone.0071890.s002.ogv
+School of fish in Myanmar by William Ruzek - CC-BY - https://commons.wikimedia.org/wiki/File:School_of_fish_in_Myanmar.webm
+Sea surface by Benzband - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Sea_surface.ogv
+Swimming with a whale shark (Rhincodon typus) (no audio) by David Rojo - CC-BY - https://commons.wikimedia.org/wiki/File:Swimming_with_a_whale_shark_(Rhincodon_typus)_(no_audio).webm
+Swimming with the Sea Turtle in Moalboal1 by Lady01v - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Swimming_with_the_Sea_Turtle_in_Moalboal1.webm
+Tiburon ballena Isla Blanca, Q.Roo by Jaontiveros - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Tiburon_ballena_Isla_Blanca,_Q.Roo.ogv
+Wake behind boat.gk by Grendelkhan - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Wake_behind_boat.gk.webm
+Whale shark (Rhincodon typus) near a boat by WIDTTF [1] - CC-BY-SA - https://commons.wikimedia.org/wiki/File:Whale_shark_(Rhincodon_typus)_near_a_boat.webm
+Wunderwerk Hai-Gebiss by ZDF/Terra X/R. Marel/S. Hillmann/C. Gerisch/A. Kindler/SpiegelTV/Maximilian Mohr - CC-BY - https://commons.wikimedia.org/wiki/File:Wunderwerk_Hai-Gebiss.webm
